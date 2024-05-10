@@ -1,3 +1,0 @@
-# NewMediaDossier
-
-My profile!
